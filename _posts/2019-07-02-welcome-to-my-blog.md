@@ -18,14 +18,14 @@ tags:
   - Home Seller Tips
 ---
 
-Our market remains busy, and it’s still an opportune time to command a high price selling your home.
+Our market remains busy, and it’s still an opportune time to command a high price selling your home. &nbsp; &nbsp;
 
-&nbsp;<br>**I know what’s happening in the Clarksville area, specifically pertaining to home values, that will directly affect you.**
+**I know what’s happening in the Clarksville area, specifically pertaining to home values, that will directly affect you.**
 
-<br>So, I’ll be posting two monthly video messages on this blog to keep you updated.&nbsp;
+So, I’ll be posting two monthly video messages on this blog to keep you updated.
 
-<br>They will be valuable and useful in helping you stay on top of what’s happening in the community.
+They will be valuable and useful in helping you stay on top of what’s happening in the community. &nbsp;
 
-<br>Check back because content will be coming soon\!
+Check back because content will be coming soon\! &nbsp;
 
-<br>I’m excited to keep you updated on what’s happening in the Clarksville area\!
+I’m excited to keep you updated on what’s happening in the Clarksville area\!
